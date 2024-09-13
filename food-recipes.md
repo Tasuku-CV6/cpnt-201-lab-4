@@ -34,6 +34,25 @@ Instructions:
 4. Bake for 20-25 minutes or until lightly browned and bubbly.
 5. Serve hot with tortilla chips, pita chips, or crackers.
 
+### Peach Salsa
+
+Ingredients:
+
+- 2 mangos, peeled, seeded and chopped
+- 2 peaches, halved, pitted, and cut into ½-inch dice
+- 4 tomatoes, chopped
+- 1 white onion, diced
+- 1 red bell pepper, diced
+- 1 yellow bell pepper, diced
+- 1 cup diced fresh pineapple
+- 1 cup chopped fresh cilantro, or to taste
+- ¾ cup water
+- 2 tablespoons white sugar, or to taste
+- 2 tablespoons lime juice
+- 1 small jalapeño pepper, minced
+- 1 clove garlic, minced
+- 1 teaspoon salt
+
 ### Bruschetta
 
 Ingredients:
