@@ -141,6 +141,15 @@ Ingredients:
 
 Instructions:
 
+1. Stir together 1 cup sugar, the flour, and salt in a large bowl. Whisk in milk, egg yolks, and whole eggs until well combined and smooth.
+2. Melt butter in a large saucepan over medium heat. Pour milk mixture into saucepan with butter; reduce heat to medium-low and whisk constantly until the mixture has thickened, coats the back of a spoon nicely, and begins to bubble, about 20 minutes. Remove from heat and stir in 2 teaspoons vanilla. Cover and let custard cool to room temperature, about 1 hour. (It will continue to thicken as it cools.)
+3. Peel and slice bananas. Line the bottom and sides of 2 (9x13-inch) broiler-safe casserole dishes with vanilla wafers. Layer banana slices over wafers. Pour cooled custard over bananas and wafers, smoothing top with a knife or spatula.
+4. For meringue, in a large clean bowl, using an electric mixer or a stand mixer fitted with the whisk attachment, beat egg whites, cream of tartar, and the remaining 1 tablespoon sugar and 1 teaspoon vanilla at high speed until stiff peaks form, about 5 minutes. Spoon meringue over top of custard, covering it completely.
+5. Set oven rack about 4 inches from broiler; turn broiler to high. Quickly broil meringues until browned, about 1 to 2 minutes. (This happens very quickly, so keep a close eye on it.)
+6. Remove dishes from oven, allow meringue to cool slightly, about 15 minutes, and serve. (Chill, covered, up to 4 days.)
+
+Instructions:
+
 1. Preheat oven to 375°F (190°C).
 2. Combine flour, baking soda, and salt in a bowl.
 3. Cream together butter, white sugar, and brown sugar until smooth.
