@@ -70,7 +70,7 @@ Ingredients:
 - Salt and pepper to taste
 - 2 cups breadsticks
 - 1 jar (24 oz) spaghetti sauce
-- 2 cups of green peppers
+- 2 cups of green peppers and purple peppers
 
 Instructions:
 
