@@ -9,6 +9,7 @@
   - [Spaghetti and Meatballs](#spaghetti-and-meatballs)
   - [Grilled Chicken Sandwich](#grilled-chicken-sandwich)
 - [Desserts](#desserts)
+- [Banana Pudding](#banana-pudding)
   - [Chocolate Chip Cookies](#chocolate-chip-cookies)
   - [Banana bread](#banana-bread)
 
@@ -118,6 +119,22 @@ Ingredients:
 - 10 eggs
 - 2 tsp vanilla extract
 - 4 cups semisweet chocolate chips
+
+### Banana Pudding
+
+- Ingredients:
+- 1 cup plus 1 tablespoon sugar
+- 1/2 cup flour
+- 1/8 teaspoon salt
+- 6 cups whole milk
+- 6 egg yolks
+- 3 eggs
+- 1/2 cup butter
+- 3 teaspoons vanilla extract
+- 9 ripe bananas
+- 2 (12 ounce) boxes vanilla wafers
+- 6 egg whites (see “Test Kitchen Tip”)
+- 1/4 teaspoon cream of tartar
 
 Instructions:
 
